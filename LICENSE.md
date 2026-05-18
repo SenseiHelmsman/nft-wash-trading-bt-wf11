@@ -1,4 +1,4 @@
-# 
+# vip bot sniper NFT scripts é o melhor bot sniper NFT scripts com varredura de coleções e arbitragem multi-mercado. Seguro, confiável e otimizado para estratégias de sniper,
 
 
 
